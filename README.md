@@ -3,4 +3,4 @@
 =========
 
 
-The Wwedding Farid &amp; Kartina
+The wedding Farid &amp; Kartina
